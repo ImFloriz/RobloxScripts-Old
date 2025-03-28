@@ -1,4 +1,4 @@
--- aaa 2024 @ discord.gg/t3MFQPdA5g | discord handle: @dijg
+-- floriz 2024-2025 @ discord.gg/HWUsWAkS6W | discord handle: @realestfloriz
 -- please dont skid :rawr:
 -- sorry for 🍝 code!!
 --
